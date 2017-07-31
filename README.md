@@ -1,4 +1,4 @@
-# Resume
+# Résumé
 
 (812)-207-5834 | amnguyen1@mail.usf.edu | 3602 Data Drive, Unit 201, Tampa, FL 33613
 
